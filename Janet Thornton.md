@@ -1,4 +1,7 @@
 Janet Thornton
+
+![img_mdayfoff](https://user-images.githubusercontent.com/80611832/128771778-880a82c1-6594-4ffd-b24a-02d764b9f503.png)
+
 Es física de formación, realizó el doctorado en el National Institute of Medical Research y más tarde hizo una estancia pstdoctoral 
 en Oxford. Al terminar se unió al grupo de investigación de Bernal Chair en el departamento de Cristalografía de la Universidad de Birbeck. 
 Es miembro de la Royal Society, de la Academia de ciencias Médicas y personal asociado a la US National Academy of Sciences. 
