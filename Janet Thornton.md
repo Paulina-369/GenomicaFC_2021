@@ -18,3 +18,7 @@ Janet Thornton | EMBL’s European Bionformatics Institute. (2015). Ebi.ac.uk. h
 Giants in genomics: Janet Thornton. (2014, November 14). @Yourgenome. https://www.yourgenome.org/stories/giants-in-genomics-janet-thornton
 About us. (2013). ELIXIR. https://elixir-europe.org/about-us
 
+Paulina León 
+Genómica Computacional 2021-2
+Agosto 2021
+
